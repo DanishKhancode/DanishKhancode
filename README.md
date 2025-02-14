@@ -5,7 +5,7 @@
   
 💬 Ask me about **JavaScript, Java, MongoDB, Express, React.js, Node.js, HTML, CSS**
   
-📫 How to reach me **khandanish36408@gmail.com**
+📫 How to reach me **dk7422092@gmail.com**
   
 ⚡ Fun fact **I think I am a nerd.**
   
